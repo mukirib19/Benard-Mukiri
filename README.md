@@ -1,6 +1,6 @@
 # Benard Mukiri Maina
 
-**AI content strategist and writing specialist — Nairobi, Kenya**
+**AI content strategist and writing specialist — Portland, Oregon**
 
 ---
 
